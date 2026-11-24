@@ -8,7 +8,7 @@ One line, at most 200 characters: a one-star review written by a house cat about
 
 ## The entry
 
-**"One star. He fills my bowl, then stands there watching me eat like a waiter who never leaves. I pay in hairballs."** — the food bowl is the specific, recognisable complaint; the human is measured by cat standards, a waiter who never leaves; and the sting lands in the last few words, the cat paying in hairballs. Deadpan one-star review shape, content only a cat would write.
+**"One star. He refills my bowl, then watches me eat like a waiter waiting for a tip. I tip in hairballs."** — the food bowl is the specific, recognisable complaint; the human is measured by cat standards, a waiter waiting for a tip; and the sting lands in the last few words, the cat tipping in hairballs. Deadpan one-star review shape, content only a cat would write.
 
 ## How it works
 
